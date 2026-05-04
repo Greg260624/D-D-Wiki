@@ -1,0 +1,31 @@
+Taken from session notes, not accurate/ correct
+crossed out = expanded upon elsewhere
+
+- ~~city [[Ruevin]]
+- ~~country [[Kothurn]]
+- elves west dwarves east
+- Strata Sea - Sea Raiders
+- goblins took reeves apoth sons and captains daugghter
+- Moon drawings and crabs done in feeces
+- prisoner no earrings?
+- Large Bird Skull
+- Familiars name is [[Athrú]]
+- sister of barmaid went missing
+- monster parts sold to Apothicary
+- [[Valus Secundus]] caught "grave lending for an extended period"
+- Mirror was for communication ( Mortal Plane?)
+- 2nd draconic inscrytion
+	- Tyrant, Lord Dragon. Sunrise, Moonrise, Stars, Sea belonging to him
+- 4 dragon statues in temple
+- Fist holding eyeball with spear
+- Peryton human shadow, evil magic to create
+- Cards in unverse use the following Suits 
+	- Cups, Swords, Stars, Dragons
+- Iune, Arathos Temples
+- jameson was the guard who was killed when the kids were taken
+- Savages from stormwalls at sea
+- flesh things from FAR REALM outside of reality and cosmology
+- "the one who is not yet born" - New World Order
+- Summoning ring found in Reeves office
+- many title on pages of translated text
+- Reeves wife escaped, with misty Step
